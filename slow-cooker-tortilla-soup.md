@@ -36,25 +36,6 @@ Pile on the toppings!
 
 ## Instructions
 
-Below are the electric pressure cooker and slow cooker instructions,
-see blog post below for directions to make this bad boy on the
-stove.
-
-1.  First, chop your veggies and measure out the ingredients. 
-
-2.  Next add everything but the heavy cream your toppings.
-
-3.  This includes bell pepper, jalapeño, corn, lentils, black beans,
-    pinto beans, broth, tomato sauce, tomato paste, salsa verde, and all
-    your herbs + spices. Toss them in and set IP to high pressure for 15
-    minutes. Walk away; FREEDOM!
-
-4.  Allow natural pressure release.
-
-5.  Stir in the cream, add all your favorite toppings, and enjoy!
-
-## Slow cooker instructions
-
 1.  First chop your veggies and measure out the ingredients. This will
     make everything super easy to toss together!
 
